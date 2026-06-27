@@ -1,4 +1,4 @@
-### Tim Mitzen 👋
+### Tim 👋
 
 
 ### About me
